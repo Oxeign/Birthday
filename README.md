@@ -4,5 +4,4 @@
    <img src="https://readme-typing-svg.herokuapp.com?color=FF4000&width=620&lines=✨+🦋𝑯𝑨𝑷𝑷𝒀+𝑩𝑰𝑹𝑻𝑯𝑫𝑨𝒀+𝑹𝑰𝑫𝑯𝑰𝑴𝑨🖤+🥀"></b></h3>
 
 
-<img src="https://readme-typing-svg.herokuapp.com?color=FF400&wifth=620&Lines=💕+💋Hoping all your birthday wishes come true! ...+You're amazing! ...+May this next trip around the sun be your best one yet!
-Wishing you a day filled with love, laughter, and all your favorite things!+Happy birthday! ...+Cheers to another year of wonderful adventures!+💞+💌"></b></h3>
+<img src="https://readme-typing-svg.herokuapp.com?color=FF4000&width=620&lines=💕+💋Hoping.all your birthday wishes come true! ...+You're amazing! ...+May this next trip around the sun be your best one yet!Wishing you a day filled with love, laughter, and all your favorite things!+Happy birthday!...+Cheers to another year of wonderful adventures!+💞+💌"></b></h3>
