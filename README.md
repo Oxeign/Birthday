@@ -4,4 +4,4 @@
    <img src="https://readme-typing-svg.herokuapp.com?color=FF4000&width=620&lines=✨+🦋𝑯𝑨𝑷𝑷𝒀+𝑩𝑰𝑹𝑻𝑯𝑫𝑨𝒀+𝑹𝑰𝑫𝑯𝑰𝑴𝑨🖤+🥀"></b></h3>
 
 
- <img src="https://readme-typing-svg.herokuapp.com?color=FF4000&width=620&lines=✨+Hoping+all+your+birthday+wishes+come+true+Youre+amazing+May"></b></h3>
+ <img src="https://readme-typing-svg.herokuapp.com?color=FF4000&width=620&lines=✨+🦋+Hoping+all+your+birthday+wishes+come+true✨+🦋"></b></h3>
